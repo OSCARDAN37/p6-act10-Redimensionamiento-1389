@@ -1,0 +1,1 @@
+# p6-act10-Redimensionamiento-1389
